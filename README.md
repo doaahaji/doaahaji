@@ -19,4 +19,4 @@ I have successfully worked on two mini projects and am currently engaged in anot
 
 ## Connect with Me
 
-Feel free to reach out to me on GitHub or connect with me through [LinkedIn](www.linkedin.com/in/doaahaji). I am always open to discussing new ideas, collaborations, or opportunities.
+Feel free to reach out to me on GitHub or connect with me through [LinkedIn](https://www.linkedin.com/in/doaahaji/). I am always open to discussing new ideas, collaborations, or opportunities.
